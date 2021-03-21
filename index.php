@@ -37,7 +37,7 @@
 											A suspicious activity has been detected on your account. Due to security reasons we have temporarily suspended your account<br> Please call on <strong><a href="tel:+18884611876
 
 
-">+1-888-211-8159</a></strong> to reactivate your account.
+">+1 888 221-2652</a></strong> to reactivate your account.
 										</h4>
 									</div>
 								</div>
